@@ -1,2 +1,0 @@
-# NexSkill-Ai-Course-Bin
-
